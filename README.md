@@ -2,6 +2,6 @@
 
 
 
-- 🌱 Estudando JavaScript
-- 💬 Contate - me no email: jvgds03@outlook.com
+
+- 💬 Contate - me no email: joviigonn@gmail.com
 - 😄 Pronouns: ele / dele
